@@ -1,0 +1,1 @@
+especifics sencilla
